@@ -1,2 +1,2 @@
-# table-miroir-infini
-All info here : http://lesfrerespoulain.fr/table-basse-miroir-infini/
+# Table miroir infini
+Toutes les infos ici : http://lesfrerespoulain.fr/table-basse-miroir-infini/
